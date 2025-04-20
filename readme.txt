@@ -1,4 +1,4 @@
-Visit websute at https://siwatchairat.github.io/shawnchaira/
+Visit website at https://siwatchairat.github.io/shawnchaira/
 
 ==================================================================================================
 
